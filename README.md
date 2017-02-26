@@ -1,2 +1,2 @@
 # replicaLogin
-mo fang ha hu
+mo fang ha hu de deng lu
